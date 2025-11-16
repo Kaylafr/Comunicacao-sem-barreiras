@@ -1,1 +1,0 @@
-# Comunicacao-sem-barreiras
